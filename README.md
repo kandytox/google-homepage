@@ -1,1 +1,1 @@
-Hi! I'm Akan Etefia. Learning to code is really challenging, but having having some fun anyway. I have the zeal inspite of the challenges. zeal and grit are chief motivators. You are welcome to correct my errors. 
+Hi! I'm Akan Etefia. Learning to code is really challenging, but having having some fun anyway. I have the zeal inspite of the challenges. zeal and grit are my main motivators. You are welcome to correct my errors. 
